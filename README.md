@@ -1,1 +1,0 @@
-Lishitha is the best girl in the world, but her luck is not good enough right now so that she didnt get the job
